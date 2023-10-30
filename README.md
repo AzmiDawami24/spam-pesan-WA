@@ -1,1 +1,1 @@
-program python yang pernah saya buat
+program spam pesan WA, hehe
